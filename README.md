@@ -1,4 +1,6 @@
 # porn-stories
-# welcome to porn stories
+ welcome to porn stories
 ## intro
 In this site i will only upload sex stories and horny stories that will make you come in any time.watching porn may affect your brain badly it is very easy to have orgasm while imaging than watching porn ,You can be a story here too.I will only upload porn contents inthis website ,so if your not ready to watch these contents don't try to open this website
+## Running day sex
+I was a frequent runner for last 4 month with out any break .when i always go for a run i see a middle aged women in here 30's ,and i was a six foot male with athletic physic in my 26's due to my training.she always greet me in the morning I also do the same.I always go for run without underwear,I usually go for 3km run this was a solated area with very few houses and most of the places where with Thick bushs and more forest places . I noticed that see always go for giving milk to store in the morning at my running time.suddenly one day she was acting weird she not greeting me .I was shocked and same time douted about here behavior she was even not ready to look in my face ,After running for 50m i realised that she was acting werd due to my pumped flushy cock trying to escape out of my trousers.
